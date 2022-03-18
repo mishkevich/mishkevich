@@ -2,6 +2,14 @@
 
 Hi, my name is Sergey and I’m not afraid to change my life. :house_with_garden: I’m open to new professional experience :bulb: and new communication with smart and talented people :bow:. Now I'm looking for new experience of commercial development :v:.  I'll be glad to be usefull for your team :bowtie:.
 
+                                                          ✔️ OPEN TO WORK ✔️ 
+
+You can connect me via:
+
+LinkedIn - https://www.linkedin.com/in/mishkevich-sergey/
+
+E-mail - mishkevich.sergey.minsk@gmail.com
+
 <!--
 **mishkevich/mishkevich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
