@@ -4,7 +4,7 @@ Hi, my name is Sergey and I’m not afraid to change my life. :house_with_garden
 
                                                           ✔️ OPEN TO WORK ✔️ 
 
-You can connect me via:
+Feel free to contact me via:
 
 LinkedIn - https://www.linkedin.com/in/mishkevich-sergey/
 
